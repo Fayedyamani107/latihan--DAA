@@ -1,1 +1,1 @@
-# tlatihan-minggu-ke-3
+# latihan-minggu-ke-3
